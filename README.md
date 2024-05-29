@@ -11,6 +11,7 @@ What I can say is it didnt really do well, here is a short version of the create
 
 Un jour, par un beau soir pluvieux, une salamandre dorée chassa les moustiques, jusqu'au moment ou ...
 
+
 "Toi, tu es un malin" m'a dit le chien recouvert d'un drap noir brillant. C'était un rêve assez perturbant de voir et d'entendre ce chien degueulasse me parler. Parfois, je me demande si j'ai été un animal dans une autre vie, quelle vie de chien.
 
 
@@ -19,4 +20,7 @@ andate al pollaio, quando l'olocausto indica la mezzanotte in punto!
 Strappate tre piume al gallo. Non una o quattro! Tre piume!
 
 Dans les montagnes brumeuses de Skarhold, un jeune homme nommé Eirik découvrit qu'il possédait le pouvoir ancestral des Dragonborn. Chaque fois qu'il respirait profondément, il pouvait sentir la chaleur des dragons anciens résonner dans ses veines. Lorsqu'un sombre dragon menaça son village, Eirik sut que son destin était de se dresser contre cette créature légendaire.
+
+
+bonjour je suis fabrice j habite uccle je suis une formation en DEV WEB chez BECODE etant passioné de football j ai eu a diner une fois avec footballeur renomé
 
