@@ -12,3 +12,5 @@ What I can say is it didnt really do well, here is a short version of the create
 Un jour, par un beau soir pluvieux, une salamandre dorée chassa les moustiques, jusqu'au moment ou ...
 
 "Toi, tu es un malin" m'a dit le chien recouvert d'un drap noir brillant. C'était un rêve assez perturbant de voir et d'entendre ce chien degueulasse me parler. Parfois, je me demande si j'ai été un animal dans une autre vie, quelle vie de chien.
+
+Dans les montagnes brumeuses de Skarhold, un jeune homme nommé Eirik découvrit qu'il possédait le pouvoir ancestral des Dragonborn. Chaque fois qu'il respirait profondément, il pouvait sentir la chaleur des dragons anciens résonner dans ses veines. Lorsqu'un sombre dragon menaça son village, Eirik sut que son destin était de se dresser contre cette créature légendaire.
