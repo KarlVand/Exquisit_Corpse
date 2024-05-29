@@ -12,3 +12,7 @@ What I can say is it didnt really do well, here is a short version of the create
 Un jour, par un beau soir pluvieux, une salamandre dorée chassa les moustiques, jusqu'au moment ou ...
 
 "Toi, tu es un malin" m'a dit le chien recouvert d'un drap noir brillant. C'était un rêve assez perturbant de voir et d'entendre ce chien degueulasse me parler. Parfois, je me demande si j'ai été un animal dans une autre vie, quelle vie de chien.
+
+la sera di luna piena,
+andate al pollaio, quando l'olocausto indica la mezzanotte in punto!
+Strappate tre piume al gallo. Non una o quattro! Tre piume!
